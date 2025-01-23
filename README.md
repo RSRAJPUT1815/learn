@@ -1,1 +1,1 @@
-truing to  create my first game
+trying to  create my first game
